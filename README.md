@@ -94,7 +94,12 @@
           - [Keeps you focused]
           - [Meditation makes you super-efficient]
         Practice it daily, even when busy, go into yourself
-        Increase Sattva by daily meditation + pranayam    
+        Increase Sattva by daily meditation + pranayam
+        Silence is meditation
+        In meditation - make the mind still & it makes the body still & vice-versa
+                      - Stay alert
+                      - Dont pursue any thoughts
+                      - Stay thought free
         
 ### Mistakes Happen
     1. Make new mistakes, don't repeat the old mistakes
