@@ -106,5 +106,7 @@
     2. Every change happens gradually, not suddenly
     3. Dare to do new things
     
+### Farnam Street
+    1. https://www.farnamstreetblog.com
     
     
