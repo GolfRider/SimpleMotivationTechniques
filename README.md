@@ -87,7 +87,8 @@
         It is simple
         It is required for your success
         It enhances your soft skills 
-          - [Ability to handle stress,interpersonal skills,confidence,decision making,clarity of thought,goal setting]
+          - [Ability to handle stress,interpersonal skills,confidence,decision making,
+                clarity of thought,goal setting]
           - [Helps in being a nice person]
           - [Contributes to 85% of your success]
           - [Gears you for success]
